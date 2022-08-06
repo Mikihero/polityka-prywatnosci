@@ -1,2 +1,2 @@
 # privacy-policy
-it's a troll, that's all you need to know
+it's a very serious and mature way to tell people on discord what I think about their arguments
